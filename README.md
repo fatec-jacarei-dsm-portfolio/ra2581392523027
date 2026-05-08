@@ -9,3 +9,5 @@
 ---
 
 📄 [Acesse o portfólio completo aqui](https://allan-ramos122.github.io/)
+📄 [Acesse o video do portfólio aqui](https://www.youtube.com/watch?v=MdDOiurOxXg)
+
